@@ -25,13 +25,13 @@
 //*
 //Base by Janith Rashmika
 //GitHub: @Mrrashmika
-//WhatsApp: +94717775628
+//WhatsApp: +94769928209
 //Want more free bot scripts? Subscribe to my YouTube channel: https://youtube.com/@gamingrash2006
 //   * Created By GitHub: Mrrashmika
 //   * Credit To Janith Rashmika
 //   * © 2025 © 𝚀𝚄𝙴𝙴𝙽 𝙰𝙽𝙹𝚄 𝗑ᴾᴿᴼ-V4.
 // ⛥┌┤
-// */
+// */ANJU-XPRO~HYET1JiL#75neh1kRNedP5neIxihm006pasZqEx1d1-hw9hIp6PU
 
 
 
